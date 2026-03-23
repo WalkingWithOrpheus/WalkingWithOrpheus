@@ -14,6 +14,7 @@ vivi ·༻❀༺· 16 ·༻❀༺· c+h
 
 <div align="center">
 ══════════════════════════════════   
+  
 [strawpage 1](https://mrskent.straw.page/)    ♫    [pronouns page](https://pronouns.cc/@loveforvinnie)    ♪    [atabook](https://loveforvinnie.atabook.org/)    ♫    [strawpage 2](https://loveforvinnie.straw.page/) 
   
 <div align="center">
