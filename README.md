@@ -4,8 +4,7 @@
 °❀⋆.ೃ࿔.*:･･:*.ೃ࿔.⋆❀°
 <div align="center">
   
-  <img width="800" height="150" alt="image" src="https://github.com/user-attachments/assets/bbfb2221-c6e3-4fd1-9776-fb44785218cf" />
-
+ <img width="749" height="250" alt="image" src="https://github.com/user-attachments/assets/ae07a0b0-b31d-401d-ad77-af26c6b5f2b5" />
 
 
 <div align="center">
