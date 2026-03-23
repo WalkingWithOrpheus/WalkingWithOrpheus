@@ -1,15 +1,10 @@
 <div align="center">
-𝑭𝒍𝒐𝒘𝒆𝒓𝒔
-  <div align="center">
-𝑰 𝑹𝒆𝒎𝒆𝒎𝒃𝒆𝒓 𝑭𝒊𝒆𝒍𝒅𝒔 𝒐𝒇 𝑭𝒍𝒐𝒘𝒆𝒓𝒔
+𝑺𝒉𝒆𝒍𝒕𝒆𝒓 𝑼𝒔
 <div align="center">
 °❀⋆.ೃ࿔.*:･･:*.ೃ࿔.⋆❀°
 <div align="center">
   
   ![5f2cdcd012604ab30c51582b4e8e86a4](https://github.com/user-attachments/assets/e1ace0a6-f31c-4932-9ccb-8b9dbf5039b4)
-
-  <div align="center">
-°❀⋆.ೃ࿔.*:･･:*.ೃ࿔.⋆❀°
 
 <div align="center">
   °❀⋆.ೃ࿔.*:･･:*.ೃ࿔.⋆❀°
@@ -19,4 +14,19 @@
 <div align="center">
 vivi ·༻❀༺· 16 ·༻❀༺· c+h
 °❀⋆.ೃ࿔.*:･･:*.ೃ࿔.⋆❀°
+  
+<div align="center">
+°❀⋆.ೃ࿔.*:･･:*.ೃ࿔.⋆❀°
 
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31eosxmshwcnwm3wuy63s2ai63ai&cover_image=true&theme=default&show_offline=false&background_color=000b11&interchange=false&profanity=false&bar_color=f4d7ae&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
+
+<div align="center">
+°❀⋆.ೃ࿔.*:･･:*.ೃ࿔.⋆❀°
+
+  <div align="center">
+
+  <img width="337" height="337" alt="download (1)" src="https://github.com/user-attachments/assets/d3a0225a-2c31-467a-aff0-4043e68f7dac" />
+
+<div align="center">
+°❀⋆.ೃ࿔.*:･･:*.ೃ࿔.⋆❀°
+𝑯𝒂𝒓𝒃𝒐𝒖𝒓 𝑴𝒆
