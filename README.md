@@ -1,7 +1,7 @@
 <div align="center">
 𝑺𝒉𝒆𝒍𝒕𝒆𝒓 𝑼𝒔
 <div align="center">
-⊹ꕀ⊹୨✦𝄞୧⊹ꕀ⊹
+═════════════════
   <div align="center">
   
  <img width="749" height="250" alt="image" src="https://github.com/user-attachments/assets/ae07a0b0-b31d-401d-ad77-af26c6b5f2b5" />
