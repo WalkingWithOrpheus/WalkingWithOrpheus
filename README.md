@@ -13,7 +13,6 @@
 
 <div align="center">
 vivi ·༻❀༺· 16 ·༻❀༺· c+h
-°❀⋆.ೃ࿔.*:･･:*.ೃ࿔.⋆❀°
   
 <div align="center">
 °❀⋆.ೃ࿔.*:･･:*.ೃ࿔.⋆❀°
@@ -29,4 +28,5 @@ vivi ·༻❀༺· 16 ·༻❀༺· c+h
 
 <div align="center">
 °❀⋆.ೃ࿔.*:･･:*.ೃ࿔.⋆❀°
+  <div align="center">
 𝑯𝒂𝒓𝒃𝒐𝒖𝒓 𝑴𝒆
